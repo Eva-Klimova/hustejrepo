@@ -1,0 +1,2 @@
+# hustejrepo
+repositar pro czechitas
